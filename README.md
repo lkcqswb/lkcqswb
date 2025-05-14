@@ -1,6 +1,6 @@
 ## Kaicheng Luo
 
-##Email:
+## Email:
   3220103383@zju.edu.cn
   kaichengluo114@gmail.com
   2684779036@qq.com
